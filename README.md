@@ -1,2 +1,0 @@
-# MarioCZE.github.io
-Ahoj
